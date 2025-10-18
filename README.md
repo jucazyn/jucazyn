@@ -1,4 +1,4 @@
-## juca's GitHub
+## juca's GitHub is under development 🤓
 
 I’m a Philosophy student at UFSC who holds a bachelor’s degree in Mathematics (UFSC, 2023).
 
